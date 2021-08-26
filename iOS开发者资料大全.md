@@ -8,7 +8,8 @@
 
 **由于内容比较长，GitHub项目首页文档显示不完整，完整版加QQ群：711315161**
 
-![image.png](https://upload-images.jianshu.io/upload_images/18671920-dee23a11537a0d6d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![iOS开发交流群聊二维码](https://user-images.githubusercontent.com/87799833/130921200-58a9d166-2fa9-4433-a858-7648b1f5e3bf.png)
+
 
 
 
