@@ -6,7 +6,7 @@
 
 **您的 **✩ Star** 是我们持续维护的最大动力！**
 
-**由于内容比较长，GitHub项目首页文档显示不完整，完整版加QQ群：1001906160**
+**由于内容比较长，GitHub项目首页文档显示不完整，完整版加QQ群：711315161**
 
 ![image.png](https://upload-images.jianshu.io/upload_images/18671920-dee23a11537a0d6d.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
